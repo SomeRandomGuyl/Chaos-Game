@@ -1,3 +1,3 @@
 # Chaos-Game
 
-Partner Belina-LPS
+Partner was Belina-LPS on the project.
